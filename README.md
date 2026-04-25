@@ -1,1 +1,1 @@
-# L-lite
+# L-Élite
